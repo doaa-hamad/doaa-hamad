@@ -4,7 +4,7 @@ ________________________________________________________________________________
 
 • 💻 I study computer engineering at the Islamic University of Gaza
 
-• 🌱 I’m currently learning Data Sciense & AI 😄😍
+• 🌱 I’m currently learning ML 😄😍
 
 • 🌸 My Goals : Start Creating projects related to artificial intelligence
 
