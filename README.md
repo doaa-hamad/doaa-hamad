@@ -6,7 +6,7 @@ ________________________________________________________________________________
 
 • 🌱 I’m currently learning ML 😄😍
 
-• 🌸 My Goals : Start Creating projects 
+• 🌸 My Goals : Learn more 🤗💙
 
 
 
